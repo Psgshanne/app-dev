@@ -10,7 +10,7 @@ My First Repository
 ## Main Character of the K-Drama Series
  - *Shin Ha-ri (Kim Se-jeong)*
  - *Jin Young-seo (Seol In-ah)*
- - *Jin Young-seo (Seol In-ah)*
+ - *Kang Tae-moo (Ahn Hyo-seop)*
  - *Kang Da-goo (Lee Deok-hwa)*
  - *Cha Sung-hoon (Kim Min-kyu)*
    
