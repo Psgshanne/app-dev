@@ -31,7 +31,7 @@ Meantime, Young-seo moves out of her father's house to escape his demands to att
  - *Queen of Tears*
  - *Juvenile Justice*
  - *While you were sleeping*
- - *Parasiite*
+ - *Parasite*
  - *Twenty Five Twenty One*
  - *My Name*
  - *Reply 1988*
