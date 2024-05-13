@@ -37,5 +37,5 @@ Meantime, Young-seo moves out of her father's house to escape his demands to att
  - *Reply 1988*
  - *King the Land*
  - *Dr. Romantic*
- - *See you in my 19ht Life*
+ - *See you in my 19th Life*
         
